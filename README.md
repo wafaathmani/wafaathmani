@@ -1,0 +1,4 @@
+- 👋 Hi, I’m wafaathmani
+- 👀 I’m interested in electronic
+- 🌱 I’m currently learning about nao robot
+- 📫 How to reach me wafaathmanii@gmail.com
